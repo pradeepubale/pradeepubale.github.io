@@ -1,5 +1,5 @@
 # Mob Psycho 100 ... Excellent masterpiece from the 'One' Sensei
-![Mob Psycho](https://images2.alphacoders.com/742/742763.png)
+![Mob Psycho](https://images2.alphacoders.com/742/742763.png | width=100)
 Just a few days before i started to watch an outstanding anime series by the manga artist "One" or Tomohiro. As I already watched the anime One Punch Man by the same creator, I was very excited.  
 
 Initially i did not keep my expectations very high from it, But somehow after watching the season 3 i'm surely like it more than OPM.  
